@@ -1,3 +1,5 @@
+<img width="1600" height="600" alt="ChatGPT Image Oct 22, 2026, 06_56_51 AM" src="https://github.com/user-attachments/assets/a34578af-0ead-4efe-b8b7-ab94626ebd5b" />
+
 # cH.ORG
 ### Personas, ideas y posibilidades · People, ideas and possibilities
 
